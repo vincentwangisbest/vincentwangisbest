@@ -1,0 +1,5 @@
+- 👋 Hi, I’m vincent
+- 👀 I’m interested in ur mom
+- 🌱 I’m currently learning how to do your mom
+- 💞️ I’m looking to collaborate on doing your mom
+- 📫 How to reach me? im at ur moms house
